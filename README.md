@@ -14,11 +14,11 @@
 - Basic DNI criteria,, (DNI if you're transphobic, racists, Homophobes (duh you're literally reading gay person's readme's), etc)
 - People who are below 15 years old. (sorry buddy.)
 - Misandrists or Misogynists. literally, pissed me off.
+- sebastian simps :sob:
   
 **'' THIN ICE ''**
 - Dry texter (I'm bad vibing with dry texter sorgy..)
 - Sprunki/Dandy's world Fandom or people.
-- Sebastian simps :sob:
 
 **'' INTERESTS/FANDOMS ''**
 - STUDIOINVESTIGRAVE 
@@ -35,8 +35,8 @@ If you are curious to see my art, feel free to look down below! im too lazy to a
  <img alt="Upcoming Indie Animation series of mine!" src="https://i.ibb.co.com/yXwJFsJ/AHHH.png">
 </picture>
 
-![gang](https://github.com/user-attachments/assets/79a93dde-c2cd-45d1-a687-04a6902f24ea)
-
 ![ueueu](https://github.com/user-attachments/assets/787a76a3-4725-48f1-b2ec-8609ef12541d)
+
+![gang](https://github.com/user-attachments/assets/79a93dde-c2cd-45d1-a687-04a6902f24ea)
 
 ![LANCEE](https://github.com/user-attachments/assets/8fc4f3e2-9280-4598-84df-c73d5bbd348e)
