@@ -30,6 +30,6 @@
 If you are curious to see my art, feel free to look down below! im too lazy to add few more but here's one..
 
 <picture>
- <source media="(prefers-color-scheme: dark)" srcset="https://ibb.co.com/Ns8z2Yz">
- <img alt="Upcoming Indie Animation series of mine!" src="https://ibb.co.com/Ns8z2Yz">
+ <source media="(prefers-color-scheme: dark)" srcset="https://i.ibb.co.com/yXwJFsJ/AHHH.png">
+ <img alt="Upcoming Indie Animation series of mine!" src="https://i.ibb.co.com/yXwJFsJ/AHHH.png">
 </picture>
