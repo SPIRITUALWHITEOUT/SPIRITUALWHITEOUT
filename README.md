@@ -15,6 +15,7 @@
 - People who are below 17 years old. (sorry buddy.)
 - Misandrists or Misogynists. literally, pissed me off.
 - sebastian simps :sob:
+- Bob/Hypersexuality and his friends. (since he's calling me out in his github, i gotta do the same. you're violating me and my friends.) 
   
 **'' THIN ICE ''**
 - Dry texter (I'm bad vibing with dry texter sorgy..)
