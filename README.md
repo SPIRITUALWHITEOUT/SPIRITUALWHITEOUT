@@ -7,6 +7,7 @@
 - You can call me **Spirit or Void**, either one works! I use any pronouns, just don't use NEO pronouns on me though.
 - I'm 19 years old, I'm a living college student out there. 
 - English is not my first language, except some grammar error when talking to me.
+- I no longer stay in safe server anymore unless a close friend wants me to be ther to hang out. i stay on 18+ server.
 - Before you interact with me, I have short span attention... i find things boring easily and i have anger issue!
 **If you found me on PonyTown, feel free to INT! i also accept c+h.**
 
